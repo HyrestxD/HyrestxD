@@ -6,4 +6,3 @@ Discord İsmim **Hyrest ✭#0001** (Yakın Bi Zamanda Etiketim Değişe Bilir)
 
 Discord IDm **853359002561675274**
 
-Discord Sunucumuz discord.gg/starside/maveria
