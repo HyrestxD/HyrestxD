@@ -1,4 +1,4 @@
-:tada: Selam Ben Hyrest 4 yıldır discorddayım ve 1 yıldır bot yazıyorum ve güzel bi yere geldimi düşünüyorum 
+:tada: **Selam Ben Hyrest 4 yıldır discorddayım ve 1 yıldır bot yazıyorum ve güzel bi yere geldimi düşünüyorum** 
 
 İnsta Adresim https://www.instagram.com/ff_orhan0/?hl=tr
 
