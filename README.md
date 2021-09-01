@@ -2,7 +2,7 @@
 
 İnsta Adresim https://www.instagram.com/ff_orhan0/?hl=tr
 
-Discord İsmim **Hyrest ✭#0001** (Yakın Bi Zamanda Etiketim Değişe Bilir)
+Discord İsmim **Sâd Hyrest#0001** (Yakın Bi Zamanda Etiketim Değişe Bilir)
 
 Discord IDm **853359002561675274**
 
